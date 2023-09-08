@@ -1,7 +1,9 @@
-Sup, I'm Kold.
+Sup, I'm Kodin.
 
-I make Video Games, bad games but games nonetheless.
+I have a website.
 
-I hope to make good games one day.
+I'm a student.
 
-Yeah that's it really.
+I'm pretty okay at coding.
+
+I want to get better.
